@@ -1,5 +1,5 @@
 ### Hi there 👋, I'm Rohit
-[Connect with me](https://bio.link/rohitsr)
+[Connect with me](https://bento.me/rohitsinghrawat)
 
 <!--
 **Rohit-Singh-Rawat/Rohit-Singh-Rawat** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
